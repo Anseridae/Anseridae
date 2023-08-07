@@ -1,6 +1,5 @@
 - like and subscribe https://www.youtube.com/channel/UC6rrW7BaPbb5RglaInQYWQg
-- support me on ko-fi   https://ko-fi.com/anchiornithidae
-- buy me a coffee   https://www.buymeacoffee.com/anchiornithidae
+- support me on buymeacoffee   https://www.buymeacoffee.com/anseridae
 
 <!---
 - 👋 Hi, I’m @Anseri1
