@@ -1,4 +1,4 @@
-- like and subscribe https://www.youtube.com/channel/UC6rrW7BaPbb5RglaInQYWQg
+- subscribe to my youtube channel https://www.youtube.com/channel/UC6rrW7BaPbb5RglaInQYWQg
 - support me on buymeacoffee   https://www.buymeacoffee.com/anseridae
 
 <!---
